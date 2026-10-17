@@ -49,4 +49,7 @@ Naman Shukla
 
 GitHub: [namanshukla25](https://github.com/namanshukla25)
 
-LinkedIn: [Naman Shukla](www.linkedin.com/in/namanshukla25)
+LinkedIn: [Naman Shukla25](www.linkedin.com/in/
+namanshukla25
+Vanity URL name
+)
